@@ -1,9 +1,8 @@
-# topic-name
+# prophets
 
-Question: *What, exactly, is meant by the scriptural phrase "___ ___ ___"?*
+Question: *How can I recognize a true prophet and a false prophet?*
 
-* [scripture references](scriptures.md)
+* [analysis](analysis.md)
+* [examples](examples.md)
 * [prophetic teachings](teachings.md)
 * [notable commentary](commentary.md)
-* [related phrases](related.md)
-* [analysis](analysis.md)
