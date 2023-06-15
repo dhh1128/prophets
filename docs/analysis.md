@@ -45,8 +45,7 @@ source | indicator
 [D&C 28:3-6](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/28.3-6?lang=eng#p2) | They sustain other leaders, and are humble followers.
 [1 Sam 3:19](https://www.churchofjesuschrist.org/study/scriptures/ot/1-sam/3.19?lang=eng#p18), [Mosiah 13:2-3,5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13.2-3,5?lang=eng#p1), [Hel 10:16](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10.16?lang=eng#p15), [4 Ne 1:32-33](https://www.churchofjesuschrist.org/study/scriptures/bofm/4-ne/1.32-33?lang=eng#p31) | The Lord sustains them, backs them up, and sometimes provides miraculous protection so they can complete their mission.
 [Mosiah 3:2-13](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/3.2-13?lang=eng#p1), [Hel 10:11, 14](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/10.11,14?lang=eng#p10), [Hel 14:9-10, 26-28](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14.9-10,26-28?lang=eng#p8) | They carefully, faithfully, and exactly relay what they have received from other prophets, from angels, from the scriptures, or from the Spirit.
-[Mosiah 13:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13.11?lang=eng#p10), [Hel 8:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8.3?lang=eng#p2)
- | They endorse and sustain God's commandments.
+[Mosiah 13:11](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/13.11?lang=eng#p10), [Hel 8:3](https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8.3?lang=eng#p2) | They endorse and sustain God's commandments.
 [Jacob 7:22](https://www.churchofjesuschrist.org/study/scriptures/bofm/jacob/7.22?lang=eng#p21), [Enos 1:4-11](https://www.churchofjesuschrist.org/study/scriptures/bofm/enos/1.4-11?lang=eng#p3) | They recognize and feel grateful for answers to prayer -- and urge others to do likewise.
 
 ### false prophets
