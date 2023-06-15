@@ -1,12 +1,12 @@
 # analysis
 
-Study JSH
+<!-- Study JSH
 TODO: analyze Nephi, Isaiah, Elijah, Elisha, mormon, moroni, ether, modern prophets, Jacob, Samuel the Lamanite, Nephi in Helaman
 TODO: analyze scribes and pharisees, priests of Egypt, soothsayers at time of Daniel, false prophets at time of Jeremiah and Ezekiel
 TODO: study what Jesus said about false prophets and about the scribes and pharisees
 capture words and life of Joseph Smith
 https://www.learnreligions.com/major-and-minor-prophets-old-testament-4048175
-For each item, go back and see if we are missing major examples.
+For each item, go back and see if we are missing major examples. -->
 
 ### true prophets
 source | indicator
