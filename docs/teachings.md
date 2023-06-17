@@ -15,6 +15,67 @@
 
 <tr>
     <td>
+Heber C. Kimball, JD 5:27, July 1857.
+    </td>
+    <td>
+<p>Here in Great Salt Lake City is the seat of government for the Church and Kingdom of God, pertaining to every person that has ever come into a probation on this earth, whether they are now in tabernacles upon this earth, or whether they are in the spirit world, or in hell. This is the place of deposit of all those keys pertaining to the salvation of the human family; and there never will one soul of those spirits now in prison come out of that place, except the keys of the kingdom of God that are now held in Great Salt Lake City open the door and let them out. They may peep and mutter, Isa. 8:19 and may have revelations until doomsday, and may declare to all eternity that Joseph Smith is a false prophet, and that brother Brigham is a false prophet, and that this Church is false, and they will still remain in hell until we let them out.</p><p>
+Brother Brigham Young holds those keys; and brother Heber C. Kimball, [p. 27b]
+and Daniel H. Wells, and others, hold those keys in connection with brother Brigham; and not one soul of you has any keys or power of salvation only what is in us; and that is one thing for you to learn. Those keys and powers were on Joseph Smith when he was in the flesh; and before he departed, he laid his hands on brother Brigham, and brother Heber, and others, and conferred the keys of salvation upon them; and we are here, in the last dispensation of the kingdom of God that pertains to every man and woman on earth, in hell, and in the spirit world; and the redemption of not one individual soul will be obtained upon any other principle.</p>
+</td>
+    <td>
+Prophets are called via authorized priesthood channels, for whatever scope they minister to.
+    </td>
+</tr>
+
+<tr>
+    <td>
+Bruce R. McConkie, "The Caravan Moves On", Oct 1984.
+    </td>
+    <td>
+<p>In the days of Jesus, wicked and evil men separated themselves from the true Christians by defaming the name of Jesus and cursing him as a false prophet.
+</p><p>
+In our day the same approach is made by ill-disposed persons to the name of Joseph Smith. The way men feel about him and his prophetic successors divides true believers from those who serve another master.
+</p><p>
+Unto Joseph Smith, seer of latter days, the Lord of heaven spoke these words: “The ends of the earth shall inquire after thy name, and fools shall have thee in derision, and hell shall rage against thee;
+</p><p>
+“While the pure in heart, and the wise, and the noble, and the virtuous, shall seek counsel, and authority, and blessings constantly from under thy hand.”  D&C 122:1–2</p>
+    </td>
+    <td>
+    </td>
+</tr>
+<tr>
+    <td>
+N. Eldon Tanner, "Keep Your Covenants", Oct 1966. 
+    </td>
+    <td>
+<p>Now some may emphasize one covenant or one requirement or one of the commandments; but we covenant to keep all the commandments when we join this Church, accept and are ordained to the priesthood.
+</p><p>
+The Prophet spoke out clearly on Friday morning, telling us what our responsibilities are. He mentioned and spoke emphatically of liquor by the drink. A man said to me after that, "You know, there are people in our state who believe in following the Prophet in everything they think is right, but when it is something they think isn't right, and it doesn't appeal to them, then that's different." He said, "Then they become their own prophet. They decide what the Lord wants and what the Lord doesn't want."
+</p><p>
+I thought how true, and how serious when we begin to choose which of the covenants, which of the commandments we will keep and follow. When we decide that there are some of them that we will not keep or follow, we are taking the law of the Lord into our own hands and become our own prophets, and believe me, we will be led astray, because we are false prophets to ourselves when we do not follow the Prophet of God. No, we should never discriminate between these commandments, as to those we should and should not keep.
+ </p>
+</td>
+    <td>
+    </td>
+</tr>
+
+<tr>
+    <td>
+Brigham Young, JD 9:329, Aug 1862.
+    </td>
+    <td>
+<p>Did the Devil believe that Joseph Smith was an impostor? He knew that Joseph Smith was a true Prophet. Did the first priest who persecuted Joseph Smith, when Joseph was about nineteen years of age, JS—H 1:21-23 believe that Joseph was an impostor? No. The Devil and his emissaries are not afraid of an impostor; for the world is full of imposition. Men who lecture against God, Jesus Christ, and the Bible, are not persecuted, but figure in what is called the best society. This proves one saying of the Savior, that the world loves its own; and those that the Lord has chosen out of the world, they hate and persecute. John 15:19 Infidelity, under some popular name, makes its way to the altars of Christian sanctuaries, and its supporters receive the honor of this world. But when Joseph Smith came before the world bearing testimony that Jesus lived, that he had seen him, declaring that he was his witness, and that Jesus was the Savior of the world, that he had spoken from the heavens and had revealed in these days the fulness of the Gospel for the salvation of men, that the Old and New Testament were true and contained the plan of human redemption, he was cast out, and the cry—“False Prophet, false Prophet, away with him,” was almost universal.
+</p>
+<p>Who can justly say aught against Joseph Smith? I was as well acquainted with him, as any man. I do not believe that his father and mother knew him any better than I did. I do not think that a man lives on the earth that knew him any better than I did; and I am bold to say that, Jesus Christ excepted, no better man ever lived or does live upon this earth. D&C 135:3 I am his witness. He was persecuted for the same reason that any other righteous person has been or is persecuted at the present day.
+</p>
+</td>
+    <td>
+True prophets are persecuted by worldly people. False prophets are popular with worldly people.
+    </td>
+</tr>
+
+<tr>
+    <td>
 M. Russell Ballard, "<a target="_gc" href="https://www.churchofjesuschrist.org/study/general-conference/1999/10/beware-of-false-prophets-and-false-teachers?lang=eng">Beware of False Prophets and False Teachers</a>", Oct 1999.
 </td>
     <td>
