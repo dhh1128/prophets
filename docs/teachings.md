@@ -15,6 +15,29 @@
 
 <tr>
     <td>
+    </td>
+    <td>
+Salvation cannot come without revelation; it is in vain for anyone to minister without it. No man is a minister of Jesus Christ without being a Prophet. No man can be a minister of Jesus Christ except he has the testimony of Jesus; and this is the spirit of prophecy. Whenever salvation has been administered, it has been by testimony. Men of the present time testify of heaven and hell, and have never seen5 either; and I will say that no man knows these things without this.
+    </td>
+    <td>
+Revelation and a powerful, true testimony of Jesus are characteristic of genuine prophets.
+    </td>
+</tr>
+
+<tr>
+    <td>
+Joseph Smith, Jr. Dec. 30, 1842. DHC 5:215–216. TPJS p. 269.
+    </td>
+    <td>
+If any person should ask me if I were a prophet, I should not deny it, as that would give me the lie; for, according to John, the testimony of Jesus is the spirit of prophecy; therefore, if I profess to be a witness or teacher, and have not the spirit of prophecy, which is the testimony of Jesus, I must be a false witness; but if I be a true teacher and witness, I must possess the spirit of prophecy, and that constitutes a prophet; and any man who says he is a teacher or a preacher of righteousness, and denies the spirit of prophecy, is a liar, and the truth is not in him; and by this key false teachers and impostors may be detected.
+    </td>
+    <td>
+True prophets valiantly and honestly testify of Jesus Christ, and are accompanied by the Spirit.
+    </td>
+</tr>
+
+<tr>
+    <td>
 Heber C. Kimball, JD 5:27, July 1857.
     </td>
     <td>
